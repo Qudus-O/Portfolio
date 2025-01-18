@@ -5,7 +5,8 @@ In my portfolio, you’ll find a selection of projects showcasing my data analys
 
 ## Contact Information
 - Email: oseniqudus1965@gmail.com
-- LinkedIn: [www.linkedin.com/in/qudusoseni82]( www.linkedin.com/in/qudusoseni82)
+- [LinkedIn](www.linkedin.com/in/qudusoseni82)
+- [X(Twitter)](https://x.com/Qudus_IV)
 
 ## Let's Connect!
 I'm always interested in new projects and collaborations. If you'd like to discuss a project, have a question, or just want to say hi, feel free to reach out to me via email or connect with me on LinkedIn.
